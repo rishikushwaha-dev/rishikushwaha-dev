@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Anything**
 
-- 📫 How to reach me **rishikushwaha.in@gmail.com**
+- 📫 How to reach me **r9951277@gmail.com**
 
 - ⚡ Fun fact **I think I am Just a Normal Student**
 
